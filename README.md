@@ -1,2 +1,0 @@
-# Certificate-
-Govt of Gujarat 
